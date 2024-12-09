@@ -40,8 +40,6 @@ I am currently balancing a part-time role at Treetop Security with full-time stu
 
 # Contact
 
-Feel free to reach out to me for collaboration or inquiries:
-
 - **Email**: lcdewald523@gmail.com
 - **LinkedIn**: Coming soon
 
